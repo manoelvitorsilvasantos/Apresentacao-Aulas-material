@@ -11,5 +11,5 @@ https://chat.whatsapp.com/BcWXeb5zCG246F1CBqi6Da
 https://discord.gg/e8atvnzR
 
 
-Vou deixar todo material para tirar dúvida. aqui
+* Vou deixar todo material para tirar dúvida. aqui
 e nessas redes sociais.
